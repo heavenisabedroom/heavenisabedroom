@@ -8,4 +8,4 @@ $${\color{#19454B}WIP \space OK? \space OK}$$
 
 <div align="center">
 
-[strawpage](link) [atabook](https://heavenisabedroom.atabook.org/)
+[strawpage](https://heavenisabedroom.straw.page) 𓏵 [atabook](https://heavenisabedroom.atabook.org/)
