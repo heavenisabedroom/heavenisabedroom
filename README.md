@@ -10,5 +10,6 @@ $${\color{#19454B}WIP \space OK? \space OK}$$
 
 [strawpage](https://heavenisabedroom.straw.page) 𓏵 [atabook](https://heavenisabedroom.atabook.org/)
 <div align="center">
+  
+<sub><sup>strawpage is a wip since school ia killing me.. look at [this](https://prettylittlelaces.straw.page) one for now</sup></sub>
 
-<small>strawpage is a wip since school ia killing me.. look at [this](https://prettylittlelaces.straw.page) one for now
