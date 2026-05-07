@@ -8,8 +8,8 @@ $${\color{#19454B}WIP \space OK? \space OK}$$
 
 <div align="center">
 
-[strawpage](https://heavenisabedroom.straw.page) 𓏵 [atabook](https://heavenisabedroom.atabook.org/)
+[strawpage](https://heavenisabedroom.straw.page) 𓏵 [atabook](https://heavenisabedroom.atabook.org/) 𓏵 [rentry](https://rentry.co/prettylittlelaces)
 <div align="center">
   
-<sub>strawpage is a wip since school ia killing me.. look at [this](https://prettylittlelaces.straw.page) one for now</sup>
+<sub>strawpage is a wip since school is killing me.. look at [this](https://prettylittlelaces.straw.page) one for now</sup>
 
